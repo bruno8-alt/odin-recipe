@@ -1,1 +1,1 @@
-# odin-recipe
+Ethiopia local foods are available here.
